@@ -1,4 +1,4 @@
-# 
+# advanced 1Password for macOS Module | anti-tracking + credit-card-storage offers the most advanced 1Password for macOS module, with anti-tracking and credit-card-storage. Ideal
 
 
 
